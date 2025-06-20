@@ -67,4 +67,6 @@ This task gave me hands-on experience in formulating and solving business optimi
 
 ![Image](https://github.com/user-attachments/assets/70297ad5-28d5-4124-81a0-ea07c4d2f05b)
 
+![Image](https://github.com/user-attachments/assets/70297ad5-28d5-4124-81a0-ea07c4d2f05b)
+
 
